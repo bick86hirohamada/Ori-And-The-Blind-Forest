@@ -238,4 +238,4 @@ Ori and the Blind Forest is available as a full free version with all features a
 Don't miss out on this enchanting adventure! **Download Ori and the Blind Forest for free today and embark on a journey like no other!**
 
 ---
-**Last updated:** 2026-10-03 06:06:58 UTC
+**Last updated:** 2026-10-03 12:16:45 UTC
